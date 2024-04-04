@@ -56,8 +56,7 @@
 
 #### Procedimientos
 
-- Análisis de los conceptos de nacionalidad, ciudadanía
-y Derechos Fundamentales:
+- Análisis de los conceptos de nacionalidad, ciudadanía y Derechos Fundamentales:
 	- Análisis de la protección que otorga la Ley 136-03 a la población infantil dominicana. Reexiones sobre experiencias en la comunidad.
 	– Realización de debates con sus compañeros y compañeras sobre las condiciones de la democracia en la República Dominicana.
 	– Aporte de opinión sobre la participación democrática en el país.
